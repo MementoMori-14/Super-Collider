@@ -1,1 +1,1 @@
-:P
+Boludeces para SC :P
